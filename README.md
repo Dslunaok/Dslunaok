@@ -1,3 +1,5 @@
+<img src=WIN_20231230_23_58_39_Pro>
+
 - 👋 Hi, I’m @Dslunaok, soy Docente del area de Manufactura y Producción Industrial
 - 👀 I’m interested in ... proponer estrategias productivas que apoye los procesos de manufactura 
 - 🌱 I’m 
